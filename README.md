@@ -1,1 +1,2 @@
 # cheburek
+its meal typically filled with minced meat, onions, and spices, then deep-fried until golden brown. Cheburek is a popular dish in many countries, especially in Eastern Europe and Central Asia. It is often served as a street food or snack and can be enjoyed with various dipping sauces.
